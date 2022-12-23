@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zino-se
+- 👀 I’m interested in softtware programming 
+- 🌱 I’m currently learning web development
+- 📫 How to reach me 07025482415 or elozinoadu@gmail.com
